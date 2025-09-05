@@ -1,1 +1,0 @@
-# Sustainable-Smart-City-Project
